@@ -6,7 +6,7 @@
 </p>
 <p align="center">╋━ moon <sup>or</sup> moony⠀⠀, ⠀  <img src="https://files.catbox.moe/c76fwd.gif"></p>
 <p align="center">
-  𝜗𝜚⠀⠀ ⠀⠀  <b>she</b> kit <i>koi</i> ⠀⠀ ⠀⠀  ᨐ ∫
+  𝜗𝜚⠀⠀ ⠀⠀  <b>she</b> ⠀⠀ ⠀⠀  ᨐ ∫
 </p>
 <p align="center">
   <i>infj</i> <img src="https://64.media.tumblr.com/f2e6bc1f06d2bbe0b36c788fb2f873f3/f54de1e2cdf7c0eb-18/s75x75_c1/a4a28a3c9824d3fdff635a071e3b1b5fd7d25d96.gifv"> 9w1 
