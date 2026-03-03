@@ -4,7 +4,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/5deb821963fac63ec3f0b8212fc11ea5/426b06a71e3da02e-49/s500x750/de27028a0fc69e88da9ff1d58a8249a5476ed2c9.pnj" height=220px;>
 </p>
-<p align="center">╋━ moon <sup>or</sup> moony⠀⠀, ⠀  <img src="https://files.catbox.moe/c76fwd.gif"></p>
+<p align="center">╋━ moon⠀⠀, ⠀  <img src="https://files.catbox.moe/c76fwd.gif"></p>
 <p align="center">
   𝜗𝜚⠀⠀ ⠀⠀  <b>she</b> ⠀⠀ ⠀⠀  ᨐ ∫
 </p>
